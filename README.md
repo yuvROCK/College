@@ -1,2 +1,2 @@
 # College
-Time pass
+Productive work
